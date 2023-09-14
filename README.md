@@ -1,0 +1,1 @@
+# 10-sinif-cografya-multi-soru-bankasi-32
